@@ -1,4 +1,4 @@
-## Hi there 👋
+![SPURGIS FANART YASSSSS 1#](https://github.com/user-attachments/assets/cb1e82bb-f96f-4b53-8bc5-e0a181977038)
 
 <!--
 **stiklaincike/stiklaincike** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
