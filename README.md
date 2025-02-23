@@ -12,5 +12,5 @@ Okay, I enjoy this gif I made xd
 
 ![pony-town-Benas Aleksandravičius🥀-trot-blinking-padded-4x](https://github.com/user-attachments/assets/8c4fdd67-863d-4f2b-9389-d5eac405d598)
 
-I just had to, like ba. I love they're songs raghaagasgj
+I just had to, like ba. I love their songs raghaagasgj
 
